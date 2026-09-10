@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAVE031027HDGSLDA7
+CAVE031027HDGSLDA7
